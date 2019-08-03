@@ -1,5 +1,4 @@
 #GiuliaDaRos
-test git
 
 Religious tensions had always been high in the areas that were also heavily affected by climate change, the Middle East and Africa. Wars, ignorance, and extreme poverty among the several groups of self selected Chosen and “most loved by the one and only, all powerful God” people had been the hallmark of the area for most of its history. Now that most of the crude had been sold to the Great Satan and what little capacity to scratch a living from the land burned away even war and mass murder had largely lost its allure. Terrorist groups mostly fled to the more clement climes in Asia and South America and either succeed in bringing their god with them or accepted the local ones. Behind they left to helpless and meek to inherit starvation or kill each other off to avoid their end as long as possible.
  
@@ -40,5 +39,5 @@ So when the first two human-carrying moon landers in almost a century came to fi
 
 . . .
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkxMzIyMDUwNiwyMDgwODY2NjIwXX0=
+eyJoaXN0b3J5IjpbMjA4MDg2NjYyMCwyMDgwODY2NjIwXX0=
 -->
