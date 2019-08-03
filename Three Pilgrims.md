@@ -39,5 +39,5 @@ So when the first two human-carrying moon landers in almost a century came to fi
 
 . . .
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA4MDg2NjYyMCwtMjA2MTU4MjU2OF19
+eyJoaXN0b3J5IjpbMjA4MDg2NjYyMF19
 -->
