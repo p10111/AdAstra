@@ -1,0 +1,72 @@
+\#GiuliaDaRos
+
+#MuhammadibnAli
+
+
+
+
+
+Religious tensions had always been high in the areas that were also heavily affected by climate change, the Middle East and Africa. Wars, ignorance, and extreme poverty among the several groups of self selected Chosen and “most loved by the one and only, all powerful God” people had been the hallmark of the area for most of its history. Now that most of the crude had been sold to the Great Satan and what little capacity to scratch a living from the land burned away even war and mass murder had largely lost its allure. Terrorist groups mostly fled to the more clement climes in Asia and South America and either succeed in bringing their god with them or accepted the local ones. Behind they left to helpless and meek to inherit starvation or kill each other off to avoid their end as long as possible.
+
+
+
+Into this background a man of later middle age, in perhaps surprisingly good shape for one  who’d lived most his recent decades protected in luxury, left his residence and set out for a pre-dawn walk into his city. His first thought was simply to do so unobserved. His second was to watch the sun come up from Terrazza del Gianicolo. He succeeded at both and according to more recent legend, “it” in the glow of a rather plain sunrise, hit him. As he gazed across the Tiber he saw His Way. A panic was just catching fire in the smallest and arguably most fanatical armed force in the world. By the time the man walked calmly across his personal Rubicon all 135 members of the army were on full alert. He wouldn’t see his home again for nearly four years and never again would he spend more than a couple weeks at a stretch there. Again, according to legend, he had no plans, no money, no support and no goals save to arrive. He had an idea how far it was but he didn’t know how long it would take him nor did he have any stopovers in mind. Some doubt all of this saying the way it all worked out was too neat, too good and too symbolic. Others say that’s just how miracles work. It is fairly safe to say he spent his first night alone, not having slept all day. His second night he reports spending with some homeless men who took him to a free kitchen. It took him several days to leave Rome. Outside the city he was fed by the first person to recognize him as they sat eating dinner in the woman's kitchen watching the evening news, dominated by the disappearance of Pope Mark. He convinced her of his calling, his awakening and of what he still only vaguely felt of his mission. He didn’t scare her off by mentioning Mecca. A holy man wandering not 60 minutes drive from his house was easier to accept. He stayed a couple days with her. They spoke and she promised, thinking it a joke at the time (as often retold by them and then repeated on and on), to come join him for the rest of his stroll when he got to San Marino. During the next weeks Giulia Da Ros would drive out to find him, to offer a ride and  to feed him and give him some new clothes. By the time he got to San Marino she had made arrangements for her niece to move into her house. She took leave from her job. She bought hiking gear. And, because they found her a couple days after the Pope left, the Swiss Guard had observed her daily supply shipment which led them to their first but just one of many very tense conversations with their boss, the Vicar of Jesus Christ, which ended with what neither party could prevent the other from doing. The Pope would walk on and the guard would keep him under watch, covertly. So the not quite old man walked on, not quite alone. 
+
+Much later some claimed it really was a miracle, one of a non-event. Pope Mark's disappearance from public became a top topic of media attention but his stroll didn’t get spotted for several months. Others noted alleged social media manipulation and traditional media cooperation resulting in numerous diversionary conspiracy theories ranging from hospitalization for everything from cancer to drug addiction; kidnapping by far right Catholics or Muslims or Radical Atheists; meditation retreats. They were already in Bulgaria when rumors started getting close to correct. Mark’s inner fire had captured a few new companions, most of whom dropped off again in a couple days. Of the travelling band drawn by his charisma now usually around 5 or 10 people, only Giulia and Stefan, a nice Swiss boy who’d become a fixture somewhere around Venice, knew who the man really was. 
+
+Muhammad ibn Ali had preached fire to the American Satan for two and half decades. Originally a follower of Fethullah Gülen, he became more conservative and more religious with age and ability to raise funds. His mosque in Ankara was never proven but long suspected to be a haven for various terrorist groups which mostly attacked Israel and targets in Africa and Turkey but sometimes in the Russian Federation, UK, and even in the US. His voice was heard and his name revered in conservative Mosques the world over. He was known to admire his bedouin heritage and set out with tents, camels and Land Rovers a few times a year. By the time Mark and his little group arrived outside of Bursa the media misinformation campaign that the Swiss Guard had been running was barely holding back the truth so the surprise revelation, complete with selfies and statements from both the big players, was already seen as professionally prepared. Ali’s group was much larger. Rumors briefly circulated of the Pope held hostage. Radical voices on both sides raged and screamed for war. Though such views never faded completely the footage of the two walking from there to the Imam’s home in Ankara and the now daily posts from several of both their followers to the vlogs calmed some and inflamed a few others. But only a few.
+
+These men had had no direct contact and made nothing but very indirect references to each other before their meeting but no one would have guessed the obvious friendship which developed on that journey. By the time they left the Imam’s home Pope Mark’s group had grown a little more and about a dozen had joined the Imam. The Imam and the Pontiff set off through a torturous desert, now supported by camels and daily resupply convoys, on foot through Syria and Lebanon. The Pope surprised everyone when he began speaking Arabic with what native speakers called an obvious but understandable “infidel accent”. 
+
+
+
+This was considered by some to be the #FirstMiracle. By the time they’d reached Jerusalem they had hundreds of followers of all faiths and of none. Logistics were difficult and had to be handled by professionals. Relations beyond the personal were still extremely strained. Neither side wanted to appear outdone. Increasingly close cooperation between The Vatican and the Imam’s followers were required and ironically led to more friendships and foundations for future joint projects. Israeli and Saudi teams and money joined the effort and Rabbi Shtainman, a key leader of Jewish orthodoxy was prepared to welcome them when they arrived Jerusalem. 
+
+
+
+Many thought the whole thing had been planned in advance, perhaps it was. Many were dead set against it and there were several attempts to shoot, bomb and otherwise kill them. The lack of success was sometimes thought of as the #SecondMiracle or #LifeMiracles. It was noted that several suicide bombers’ kits simple didn’t explode. The few that did, exploded too far from the #ThreePilgrims to hurt them. Many would-be  assassins had spiritual awakenings and joined the pilgrimage (though usually in spirit only since they ended up in prison). Many thought these were set up as well. What was known was that there were “real” Jews, Muslims and Christians who actually were very much against it and called for all manner of opposition including violent. Despite the improbability of it all Rabbi Shtainman, Imam ibn Ali and Pope Mark made it to Mecca.
+
+  
+
+The three of them had been together for over half a year. Two had been national and religious enemies as deeply entrenched as ever there had been and the third often a target of the other two. Their political positions until then would have seemed to make that amazing photo of three older men on the beach, laughing utterly impossible.  Of course only the Imam would have been allowed into the holy city. Perhaps the Rabbi might have tried to make an issue of the fact a year earlier. The whole group, now hundreds strong made a large circuit of the city to signify reaching their goal and to show respect for the peace within. That alone took over a month. They went to the beach near Alsaif. By this point it was impossible to not have any official photos and press communications but the shot of them laughing snapped by one one of the throng, a shot so simple and human it became the icon of the generation. The story, not admitted to by any of the the three, is that Mark set out on a whim and couldn't reach reach his goal and apparently they found it funny.
+
+
+
+Many people were cynical about the origins of the trip.  No one could deny that these men had walked the road they had and even the most cynical couldn't deny the simple human connection that had blossomed between them. 
+
+
+
+Of course there were those who belabored the point that it was the Pope, the Christian who started it and was the only one to walk the whole trip. His only comment to that was to point out geography. He made no claim that his faith somehow was better. He simply faced east one morning and and, with the help of the God of them all, saw all the way to Mecca through Jerusalem. 
+
+
+
+No one had planned this trip and no one really planned much further than a few weeks ahead even now. The throng began disbursing and soon went from hundreds to around 50 or so. Having achieved a truly remarkable goal and shown that change is possible even in this part of the world it was expected that they'd all pack up and head home.  That, of course, isn't what happened.
+
+
+
+Even the most cynical came to admit that the experience of the journey changed all three men deeply. No written and very few electronic records were taken so most stories concerning the #ThreePilgirms took a few laps as good, old tyme oral tradition before being written. Among the most fixed memes though, are the ones that led to the proclamations. 
+
+
+
+Most predictably, they came to know each other as humans beings. Though influential, globally known and in command of vast and violent resources they were still just moving meat-bags that needed to eat and shit, that suffered pain and blissed out in ecstasy, that had all too similar and basic hopes and fears shared with probably all other meat-bags of the mostly hairless, bipedal configuration. These three happened to also share a deep though often violently conflicting faith. Some say the depth of faith wasn’t so much in the trappings of their respective holy teachings but in something more vague, more emotional, and much less brandable. Something that they discovered they actually shared. A common core. (Ancient shamans and hermit priests can nod their heads in recognition and enjoy that smile of “finally” at this point.) Related and also not terribly surprising to those who’ve ever experienced it, sharing a need to accept the charity of strangers brings even the most hated enemies together.
+
+
+
+
+
+First, they established the route they took to be a pilgrimage sacred to all three faiths and pledged resources to create so called Oases in which all pilgrims could find food, shelter, an increasing amount of first aid (then general health care outright), and spiritual companionship (eventually this became a much larger movement including all global religions). The second was that there would be no official name, hierarchy or financial structure for this “meta-faith”. Each faith kept its individual customs, beliefs etc. And third, and most important for Lunar exploration, they proclaimed that taking terran life and with it the love and word of god(s) to the stars was the intent of god from the start. It was the imam who said the words which became the resonant meme of this aspect of their movement, “LIFE is the gift of Allah. Each flower, each creature, each of us carries this gift to hand off in our time. We both share in and become steps in LIFE’s Great Journey.”
+
+  
+
+
+
+Their movement gave people a goal which was grand and glorious enough to inspire even the most fervent of religious fanatics. One, perhaps for the first time in history, without the need for killing people. It certainly didn’t end religious violence and hatred. In some cases it inflamed both. It did, however, divert much of the energy from the destructive factions. It captured imaginations. Where once Holy War was the only big thing that could inflame the passions of the young and hopeless, #TheGreatJourney offered another direction and a great many took it. It gave hope to the hopeless. It promised no afterlife beyond that promised by the constituent faiths but vast masses of people died, a little less miserable in their poverty and suffering for believing they somehow contributed to it. It made the misery of the suffering masses more bearable. The religions they’d grown up with told stories about the greatness of others, usually in times long past. For the first time, now they told those stories about others and about gods feeling they were stories in which they played integral roles no matter how small. Their telling was the magic.
+
+
+
+  
+
+So when the first two human-carrying moon landers in almost a century came to final rest on their home world they did so in countries that had made no contribution to the flight whatsoever but without which that flight may have been the last. One in St Peter’s Square and the other in Mecca. Symbolic anchor points to the terran Great Journey and place from which humanity took the first steps toward #VitaAdAstra over ten millennia earlier.
+
+
+
